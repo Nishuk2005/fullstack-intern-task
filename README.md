@@ -117,4 +117,4 @@ Live links:
 
 Nishu
 GitHub: https://github.com/Nishuk2005
-Email: nishu.nidhi20025@gmail.com
+Email: nishu.nidhi2005@gmail.com
